@@ -1,6 +1,9 @@
 # Rabbitry
 Rabbitry is an agricultural practice of keeping and rearing rabbits.
 
+TYPES OF RABBITS
+
+
 HOW TO HELP NEWLY PRODUCED BUNNIES BREASTFEED.
 
 - Newly born bunnies have their eyes closed for a period of two weeks after birth.
