@@ -5,13 +5,13 @@ TYPES OF RABBITS
 
 Majorly concentrating on keeping;
 
-- Netherland white
+- Netherland white weighs 4.5 - 5.4kgs
 
-- chichillia
+- chichillia 4.5 - 5.4kgs
 
-- local and 
+- local and 4.5 - 5.4kgs
 
-- Flemish giant
+- Flemish giant weighs 6.8 - 10kgs
  
  MOTIVATION;
 
