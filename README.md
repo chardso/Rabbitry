@@ -36,14 +36,11 @@ Majorly concentrating on keeping;
 
 - its also an excellent source of vitamin B12.
 
-
-
 3.Hair,used in healing open wounds.
+
+4.Rabbit waste,applied direct to the garden by farmers as a fertilizer because it has ahigh humus content.
  
   Absolutely nothing is thrown away.
-
-
-
 
 HOW TO HELP NEWLY PRODUCED BUNNIES BREASTFEED.
 
