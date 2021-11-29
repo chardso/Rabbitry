@@ -22,7 +22,7 @@ Majorly concentrating on keeping;
 - To become an example of idle youths yawning of  unemployment.
 
 
-- To disperse the experience achieved from breeding to the young generation
+- To disperse the experience achieved from breeding to the young generation in communities.
  
  FACTS ABOUT RABBIT PRODUCTS;
 
