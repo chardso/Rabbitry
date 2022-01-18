@@ -41,7 +41,7 @@ Majorly concentrating on keeping;
 
 4.Rabbit waste,applied direct to the garden by farmers as a fertilizer because it has ahigh humus content.
  
-  - sAbsolutely nothing is thrown away.
+  - Absolutely nothing is thrown away.
 
 # HOW TO HELP NEWLY PRODUCED BUNNIES BREASTFEED.
 
