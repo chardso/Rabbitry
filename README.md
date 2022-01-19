@@ -1,19 +1,25 @@
 # Rabbitry
+
 Rabbitry is an agricultural practice of keeping and rearing rabbits.
 Rabbitry
+
 Rabbitry is an agricultural practice of keeping and rearing rabbits.
-Types of rabbits
+# Types of rabbits
+
 Majorly concentrating on keeping;
     • Netherland white weighs 4.5 - 5.4kgs
     • chichillia 4.5 - 5.4kgs
     • local and 4.5 - 5.4kgs
     • Flemish giant weighs 6.8 - 10kgs
-MOTIVATION;
+# MOTIVATION;
+    
     • The alarming market of white meat and its health benefits.
-      VISION;
+      
+ #  VISION;
     • To become an example of idle youths yawning of unemployment.
     • To disperse the experience achieved from breeding to the young generation in communities.
-FACTS ABOUT RABBIT PRODUCTS;
+
+# FACTS ABOUT RABBIT PRODUCTS;
 1.Urine,its used as a pesticide in agriculture.it can be used directly by a farmer or taken to agricultural research centres for purification.
 2.Meat,has a lot of healthy benefits
     • its and excellent source of proteins and proteins are used in the repair of muscles and blood.
