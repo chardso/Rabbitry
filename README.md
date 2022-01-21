@@ -16,26 +16,24 @@ Majorly concentrating on keeping;
     
     • Flemish giant weighs 6.8 - 10kgs
 
-# MOTIVATION;
+# Motivation;
     
     • The alarming market of white meat and its health benefits.
       
- #  VISION;
+ #  Vission;
     
     • To become an example of idle youths yawning of unemployment.
     
     • To disperse the experience achieved from breeding to the young generation in communities.
 
-# FACTS ABOUT RABBIT PRODUCTS;
+# Facts about rabbit products;
+
 1.Urine,its used as a pesticide in agriculture.it can be used directly by a farmer or taken to agricultural research centres for purification.
 
 2.Meat,has a lot of healthy benefits
-    
-    • its and excellent source of proteins and proteins are used in the repair of muscles and blood.
-    
-    • its an excellent source of iron.
-    
-    • its also an excellent source of vitamin B12.
+     • its and excellent source of proteins and proteins are used in the repair of muscles and blood.
+     • its an excellent source of iron.
+     • its also an excellent source of vitamin B12.
 
 3.Hair,used in healing open wounds.
 
@@ -43,7 +41,7 @@ Majorly concentrating on keeping;
     
     • Absolutely nothing is thrown away.
 
-# HOW TO HELP NEWLY PRODUCED BUNNIES BREASTFEED.
+# How to help newly born bunnies breastfeed.
     
     • Newly born bunnies have their eyes closed for a period of two weeks after birth.
     
@@ -55,4 +53,4 @@ Majorly concentrating on keeping;
     
     • Note that,at this stage food is constant in that particular cage,to avoid predation.
 
-# HOW TO CONSTRUCT A RABBIT CAGE.
+# How to construct a rabbit cage.
