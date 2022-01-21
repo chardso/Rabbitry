@@ -7,13 +7,16 @@ Rabbitry is an agricultural practice of keeping and rearing rabbits.
 # Types of rabbits
 
 Majorly concentrating on keeping;
-    ** Netherland white weighs 4.5 - 5.4kgs
     
-    ** chichillia 4.5 - 5.4kgs
++ Netherland white weighs 4.5 - 5.4kgs
     
-    **local and 4.5 - 5.4kgs
     
-    ** Flemish giant weighs 6.8 - 10kgs
++ chichillia 4.5 - 5.4kgs
+    
+    
++local and 4.5 - 5.4kgs
+    
++ Flemish giant weighs 6.8 - 10kgs
 
 # Motivation;
     
