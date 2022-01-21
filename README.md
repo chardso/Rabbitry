@@ -19,13 +19,13 @@ Majorly concentrating on keeping;
 
 # Motivation;
     
-    • The alarming market of white meat and its health benefits.
++ The alarming market of white meat and its health benefits.
       
  #  Vission;
     
-    • To become an example of idle youths yawning of unemployment.
++ To become an example of idle youths yawning of unemployment.
     
-    • To disperse the experience achieved from breeding to the young generation in communities.
++ To disperse the experience achieved from breeding to the young generation in communities.
 
 # Facts about rabbit products;
 
@@ -44,14 +44,14 @@ Majorly concentrating on keeping;
 
 # How to help newly born bunnies breastfeed.
     
-    • Newly born bunnies have their eyes closed for a period of two weeks after birth.
++ Newly born bunnies have their eyes closed for a period of two weeks after birth.
     
-    • As a result they need assistance during breastfeeding for two weeks,awaiting opening of th
++ As a result they need assistance during breastfeeding for two weeks,awaiting opening of th
     
-    • Hold the bunny and direct its mouth on the breast of its mother,automatically it starts suckling.
++ Hold the bunny and direct its mouth on the breast of its mother,automatically it starts suckling.
     
-    • when their eyes are open after two weeks period,keep them in the same cage with the mother,it will get used to the bunnies,and will start breast feeding on its own.
++ when their eyes are open after two weeks period,keep them in the same cage with the mother,it will get used to the bunnies,and will start breast feeding on its own.
     
-    • Note that,at this stage food is constant in that particular cage,to avoid predation.
+Note that,at this stage food is constant in that particular cage,to avoid predation.
 
 # How to construct a rabbit cage.
