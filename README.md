@@ -32,9 +32,9 @@ Majorly concentrating on keeping;
 1.Urine,its used as a pesticide in agriculture.it can be used directly by a farmer or taken to agricultural research centres for purification.
 
 2.Meat,has a lot of healthy benefits
-     • its and excellent source of proteins and proteins are used in the repair of muscles and blood.
-     • its an excellent source of iron.
-     • its also an excellent source of vitamin B12.
+ * its and excellent source of proteins and proteins are used in the repair of muscles and blood.
+ * its an excellent source of iron.
+ * its also an excellent source of vitamin B12.
 
 3.Hair,used in healing open wounds.
 
