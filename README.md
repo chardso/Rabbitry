@@ -38,9 +38,9 @@ Majorly concentrating on keeping;
 
 3.Hair,used in healing open wounds.
 
-4.Rabbit waste,applied direct to the garden by farmers as a fertilizer because it has ahigh humus content.
-    
-    • Absolutely nothing is thrown away.
+4.Rabbit waste,applied direct to the garden by farmers as a fertilizer because,
+* it has ahigh humus content.
+* Absolutely nothing is thrown away.
 
 # How to help newly born bunnies breastfeed.
     
