@@ -37,7 +37,7 @@ Majorly concentrating on keeping;
 
  - its also an excellent source of vitamin B12.
 
-==3.Hair,used in healing open wounds==
+3.Hair,used in healing open wounds
 
 4.Rabbit waste,applied direct to the garden by farmers as a fertilizer because it has ahigh humus content.
  
@@ -56,7 +56,7 @@ Majorly concentrating on keeping;
 - Note that,at this stage food is constant in that particular cage,to avoid predation. 
         
           
-      
+      == managing rabbitry during dry season ==
           
         
            
