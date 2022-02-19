@@ -14,18 +14,18 @@ Majorly concentrating on keeping;
 
   - Flemish giant weighs 6.8 - 10kgs
  
- # MOTIVATION;
+ # Motivation;
 
 - The alarming market of white meat and its health benefits.
 
-  # VISION;
+  # Vision;
 
 - To become an example of idle youths yawning of  unemployment.
 
 
 - To disperse the experience achieved from breeding to the young generation in communities.
  
- # FACTS ABOUT RABBIT PRODUCTS;
+ # Facts about rabbit products
 
 1.Urine,its used as a pesticide in agriculture.it can be used directly by a farmer or taken to agricultural research centres for purification.
 
@@ -43,7 +43,7 @@ Majorly concentrating on keeping;
  
   - Absolutely nothing is thrown away.
 
-# HOW TO HELP NEWLY PRODUCED BUNNIES BREASTFEED.
+# How  to help newly produced bunnies breastfeed.
 
 - Newly born bunnies have their eyes closed for a period of two weeks after birth.
 
