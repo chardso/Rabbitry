@@ -1,7 +1,7 @@
 #  Rabbitry
 
 Rabbitry is an agricultural practice of keeping and rearing rabbits.
-![](https://github.com/chardso/Rabbitry/blob/%23Asknet-participant-2020-2021/IMG_20220107_073528.jpg)
+![](images/adultrabbits.jpg)
 
 # Types of rabbits
 
