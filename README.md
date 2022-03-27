@@ -49,6 +49,7 @@ Majorly concentrating on keeping;
 - Newly born bunnies have their eyes closed for a period of two weeks after birth.
 
 - As a result they need assistance during breastfeeding for two weeks,awaiting opening of the eyes.
+![](images/helpingbunniesbreastfeed.jpg)
 
 - Hold the bunny and direct its mouth on the breast of its mother,automatically it starts suckling.
 
